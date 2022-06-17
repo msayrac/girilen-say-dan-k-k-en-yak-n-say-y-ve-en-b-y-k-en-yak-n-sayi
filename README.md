@@ -1,0 +1,1 @@
+# girilen-say-dan-k-k-en-yak-n-say-y-ve-en-b-y-k-en-yak-n-sayi
